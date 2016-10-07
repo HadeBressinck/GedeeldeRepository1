@@ -1,4 +1,4 @@
-gedeelde repository 1
-welkom op de repo!!!
-:p
-:D
+Gedeelde repository 1
+Welkom op de repo!!!
+Gelieve uw schoenen aan te houden en geen foobar te gebruiken!
+:-)
